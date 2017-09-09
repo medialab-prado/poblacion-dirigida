@@ -1,5 +1,5 @@
  # Población dirigida / Population Flows
- ## Resúmen/Abstract
+ ## Resumen/Abstract
  
 Entre los años 1939 y 1973, el Instituto Nacional de Colonización promovió la construcción en España de más de 300 pueblos. El ambicioso plan que tenía como objetivo la creación de amplias zonas de regadío y el aumento de su productividad movilizó aproximadamente a 55.000 familias.
 
