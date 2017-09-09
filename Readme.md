@@ -7,6 +7,7 @@ Este hecho supuso el movimiento migratorio de mayor envergadura promovido por el
 
 Ventanas de datos, en definitiva, a un territorio cuya escala y memoria cambiaron para siempre.
 
+-------------
 
 Between 1939 and 1973, the National Institute of Colonization (INC) promoted the construction in Spain of more than 300 villages. The ambitious plan that aimed to create large irrigated areas and increase its productivity mobilized approximately 55,000 families.
 
